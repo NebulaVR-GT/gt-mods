@@ -8,3 +8,4 @@ then go to your library, hold grip on Gorilla tag and drag it out of your librar
 and boom you have standalone mods 
 Creds
 x6 (made the first one)
+HERE IS THE MOD DOWNLOAD https://www.mediafire.com/file/8rbi96sx9bxyqhh/tagall.apk/file
